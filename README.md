@@ -1,3 +1,4 @@
-# Summer work in Figma 😇
+# Summer work at Figma 😇
 
-### Hope, you'll like this. Here there is some logos and layouts for future web-pages
+### I hope you enjoy it.
+### There are several logos and layouts for future web pages here
